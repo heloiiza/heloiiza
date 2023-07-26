@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 🧡
+### Boas vindas ao meu perfil 💙
 
 Meu nome é Heloiza Fernanda Macedo
 
@@ -11,3 +11,5 @@ Meu nome é Heloiza Fernanda Macedo
 heloiza.macedo@escola.pr.gov.br
 
 @heloiia_macedo
+
+![](https://media.tenor.com/MXK5aazbwlsAAAAC/stitch-lilo-and-stitch.gif)
