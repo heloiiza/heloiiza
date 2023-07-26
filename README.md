@@ -8,4 +8,6 @@ Meu nome é Heloiza Fernanda Macedo
 
 ### Você pode entrar em contato comigo 📫
 
+heloiza.macedo@escola.pr.gov.br
+
 @heloiia_macedo
